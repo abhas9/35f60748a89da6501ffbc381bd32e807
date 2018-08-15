@@ -8,4 +8,4 @@
 * Other infinite unknown issues.
 
 
-### PS: Thanks for ❤ dispite all 🐞
+### PS: Thanks for ❤ despite all 🐞
